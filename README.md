@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ci14 "CHRISTIAN INTONG"
+- 👀 I’m interested in Coding,Arts and Music.
+- 🌱 I’m currently learning about my course Information Technology especially Programming and others
+- 💞️ I’m looking to collaborate to different amazing people with great skills and experiences.
+- 📫 How to reach me you can message me on facebook-messenger or email. 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I can speak like stitch.
